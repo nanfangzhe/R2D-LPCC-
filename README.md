@@ -5,13 +5,14 @@ Our method introduces a multi-source fusion-based relevance ranking mechanism th
 
 
 
-https://github.com/user-attachments/assets/abb8623e-ba2e-4c44-ad54-6710c7df883c
+
+https://github.com/user-attachments/assets/ff4ef393-9ce5-47f4-8441-136c0570ffcf
 
 
 
-https://github.com/user-attachments/assets/0bbd2969-aa0e-4ccb-8449-6cd98ceebc81
+https://github.com/user-attachments/assets/e983a52b-80b4-4158-9b88-0c8090a8c396
 
 
 
-Uploading animation_SAL_LPCC.mp4…
+https://github.com/user-attachments/assets/edfde90e-f755-4f96-bf9a-eb849c612361
 
